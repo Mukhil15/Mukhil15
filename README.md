@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **mukhil1212@gmail.com**
 
-- 📄 Resume [https://drive.google.com/file/d/1oksvkAW3l1-q1via2U8tw0pf8tFn6RLn/view?usp=sharing](https://drive.google.com/file/d/1oksvkAW3l1-q1via2U8tw0pf8tFn6RLn/view?usp=sharing)
+- 📄 Resume [https://drive.google.com/file/d/1NvE1tl7lJEmnuv_kp7PT7fsPwUf3RzHA/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
